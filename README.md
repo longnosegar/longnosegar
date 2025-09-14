@@ -1,15 +1,12 @@
+<img width="2048" height="295" alt="tumblr_4174a05a8e292cebe4d924e508f8c106_d667afaa_2048" src="https://github.com/user-attachments/assets/15c2a05f-cfae-4f5e-bdbc-488c872200e7" />
 
 ## Hii, i'm Charlie!!
-
-
-#### i'm transmasculine, as well as demisexual and biromantic
-
-i'm in a relationship, and absolutely love my boyfriend!! please dont flirt with me :))
-
-  DONT use pet names/nicknames if we aren't close. just call me Charlie. 
-  If i know u pretty well u can totally use nicknames, otherwise i'd rather you refrain
-
+### he/it/woof
+transmasculine, demisexual and biromantic
+in a relationship, and i love my boyfriend!! please dont flirt with me :D
 <sub>15 yrs old as of 8/31</sub>
+
+pls dont use nicknames if we aren't good friends :) 
 
 ![tumblr_5bbd5945250bba62f268058ee0391156_fee97209_100](https://github.com/user-attachments/assets/281c1228-a570-4b22-94b2-5fae9dcc46bf) 
 ![tumblr_6dfb0ea9113d2ed367330c6e156b918b_b994312b_100](https://github.com/user-attachments/assets/b40e1789-4299-46fc-8650-903e6b779d28)
