@@ -27,10 +27,8 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 
 ##### dont be a creep pls
 
+<img width="1080" height="82" alt="tumblr_ed3ad903301dd8f900f2d374d6a45b53_73a7eaa7_1280" src="https://github.com/user-attachments/assets/302b3ea6-8493-4708-9c56-86fe78067fc2" />
 
-
-
-![tumblr_048632348fff1ffb19497dca2163d852_ad9e050c_640](https://github.com/user-attachments/assets/e5ed4942-7686-447e-a233-a43c0def57ee) 
 
 
 # blinky collection  ![KPqb1S5](https://github.com/user-attachments/assets/5303724b-5cb0-42e5-a166-4d76002a6bac)
@@ -119,11 +117,8 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 
 
 
-
-
 # ty for reading! have a great day X)
 
-![Untitled65_20250219222019](https://github.com/user-attachments/assets/2e5196dc-2329-4caa-a80c-378e594e5a44)
 ![tumblr_1287969823dba6ed99fb1b03273ec3b7_ea2690da_1280](https://github.com/user-attachments/assets/7fcfdf93-2ad4-4d80-9919-f9d9ed7cf5fb)
 
 
