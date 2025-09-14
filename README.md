@@ -11,15 +11,6 @@ i'm in a relationship, and absolutely love my boyfriend!! please dont flirt with
 
 <sub>15 yrs old as of 8/31</sub>
 
-## MAIN FRONTS
--  CHARLIE - he / star - Host + Memory Holder 
-
--  TYZIAS  - she / he - Stabilizer + Internal Self Helper 
-
-- CLYDE  - it / he - Protector  +  Mood Booster
-
-- VEE  - she / her - Protector  +  Emotional Regulator
-
 ![tumblr_5bbd5945250bba62f268058ee0391156_fee97209_100](https://github.com/user-attachments/assets/281c1228-a570-4b22-94b2-5fae9dcc46bf) 
 ![tumblr_6dfb0ea9113d2ed367330c6e156b918b_b994312b_100](https://github.com/user-attachments/assets/b40e1789-4299-46fc-8650-903e6b779d28)
 
@@ -53,6 +44,7 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 
 ![tumblr_d1a3023bc88c3839cb4221dc1b89882e_08bdceae_400](https://github.com/user-attachments/assets/0248b10e-dbe1-4e33-b3fd-d69bf265d698)
 ![tumblr_7267bb4a09f3798e2ea456d99bb294c8_e7e89e64_400](https://github.com/user-attachments/assets/344b3582-dc41-47b9-a2a5-20e5b421e3da)
+![tumblr_d429fedccb4b642d3ee0dbc5483fee92_75e946e8_400](https://github.com/user-attachments/assets/84fbf3f9-151a-4494-a173-6aeb45a8d069)
 
 
 ![tumblr_68bb9e71ec030bfeb579002c6761aa36_9f052121_100](https://github.com/user-attachments/assets/c8c45ca7-ddc3-407c-a642-45d113a3c228)
