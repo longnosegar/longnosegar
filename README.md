@@ -1,6 +1,4 @@
 
-![tumblr_f9e439ce15c2137ea786ea1b271743e0_ff58ae1a_1280](https://github.com/user-attachments/assets/360635e1-85f6-4380-89fb-2458cd37a7ff)
-
 ## Hii, i'm Charlie!!
 
 #### i'm transmasculine, as well as demisexual and biromantic
