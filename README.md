@@ -5,13 +5,12 @@
 # Nice to meet youuu, 
 ### welcome to my page !! 
 
-Hii i'm Tyzias or Charlie!!
-
-![tumblr_888e2db0d46eb746c4d726eeeda2ca50_8443d340_250](https://github.com/user-attachments/assets/39971230-7bc3-4545-a520-d17b45540627)
+Hii, i'm Charlie!!
+-# 15 yrs old!
 
 #### i'm transmasculine, as well as demisexual and biromantic
 
-i have a moirail/qpp, and im super duper pale for him!!
+i'm in a relationship, and absolutely love my boyfriend!! please dont flirt with me :))
 
   DONT use pet names/nicknames if we aren't close. just call me Charlie. 
   If i know u pretty well u can totally use nicknames, otherwise i'd rather you refrain
