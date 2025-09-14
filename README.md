@@ -1,6 +1,9 @@
 
 ## Hii, i'm Charlie!!
 
+![tumblr_d1a3023bc88c3839cb4221dc1b89882e_08bdceae_400](https://github.com/user-attachments/assets/0248b10e-dbe1-4e33-b3fd-d69bf265d698)
+
+
 #### i'm transmasculine, as well as demisexual and biromantic
 
 i'm in a relationship, and absolutely love my boyfriend!! please dont flirt with me :))
