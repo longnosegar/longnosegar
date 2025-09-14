@@ -20,6 +20,10 @@ pls dont use nicknames if we aren't good friends :)
 ### interests
 #### Limbus Company, Welcome to Night Vale, Phighting!, Vocaloid, Ikea, Splatoon 3, Homestuck, Dreams of an Insomniac, Vita Carnis, FNAF, Hermitcraft and the Life series, old technology, Warrior Cats, Inanimate Insanity, Pokemon, and SCP. 
 
+
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/8e9c19ed-e051-45bf-bd40-632aae96bcbc" />
+
+
 ### DNI
 proshipper, NSFW, transgender exclusive radical feminists, pedophiles and minor attracted people, misogynists, endogenic/non-traumagenic systems, anyone who makes rape jokes under any context, abelists, etc. 
 
