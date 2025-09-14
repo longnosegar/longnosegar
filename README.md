@@ -108,11 +108,11 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 ![tumblr_cfa1c5c7d1c4326edb9c8d6a9dc2b845_bbbd86e0_250](https://github.com/user-attachments/assets/e46ba974-1da0-4ece-90aa-1f064dba67c3)
 ![tumblr_055c6146c5cbbe6c02f5a4ec7bba63ac_7c6bb2cf_250](https://github.com/user-attachments/assets/39da3218-918a-42be-a473-d76d67f2c5ad)
 ![tumblr_aaf1d7b69d4fc0b2e2328992b99f08b5_7df9d657_250](https://github.com/user-attachments/assets/59054458-7796-420b-b02a-7c0868a66806)
-![tumblr_0fb76f00459b7b07d5bf9e404c800ab5_e13dc637_250](https://github.com/user-attachments/assets/3b91e8e5-82bb-4971-b6a7-a52e106006a8)
-![tumblr_e6fedcf7756f2e6dc6da3d5661586e55_353d66d2_250](https://github.com/user-attachments/assets/d2a3d32b-436e-4b6e-9489-602011b61e3d)
-![tumblr_d2043ac990072c5ce241ba4975883242_045aeed6_250](https://github.com/user-attachments/assets/40e35ae5-ad06-4468-9b80-6e8e1735cb6f)
+
+
+
 ![tumblr_a9f3f0515845ae5cc7e9bdda21f6729a_dc6adf82_250](https://github.com/user-attachments/assets/218dd92e-00ec-41a8-be7a-b1668ea2e4ab)
-![tumblr_778e5b094745cf1265f23d7bcfc7ef02_1f7ec770_250](https://github.com/user-attachments/assets/cf928e99-c5d9-4141-8341-dab2cbfe96fc)
+
 ![tumblr_e07fbe0d2ab272557c906b34f43a1087_2e91e2d5_250](https://github.com/user-attachments/assets/41124476-a19a-48d3-9aa0-be936d3aa498)
 
 
