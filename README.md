@@ -21,7 +21,9 @@ pls dont use nicknames if we aren't good friends :)
 #### Limbus Company, Welcome to Night Vale, Phighting!, Vocaloid, Ikea, Splatoon 3, Homestuck, Dreams of an Insomniac, Vita Carnis, FNAF, Hermitcraft and the Life series, old technology, Warrior Cats, Inanimate Insanity, Pokemon, and SCP. 
 
 ### DNI
-proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), people who indulge in nsfw (bodily a minor), transgender exclusive radical feminists, lesboys/turigirls (nothing against ANY of you as people), pedophiles and minor attracted people, misogynists, endogenic/non-traumagenic systems, anyone who makes rape jokes under any context.
+proshipper, NSFW, transgender exclusive radical feminists, pedophiles and minor attracted people, misogynists, endogenic/non-traumagenic systems, anyone who makes rape jokes under any context, abelists, etc. 
+
+I block freely, so even if you aren't one of these, i may still block you!!
 
 ##### dont be a creep pls
 
