@@ -10,11 +10,6 @@ in a relationship, and i love my boyfriend!! please dont flirt with me :D
 pls dont use nicknames if we aren't good friends :) 
 
 ![tumblr_5bbd5945250bba62f268058ee0391156_fee97209_100](https://github.com/user-attachments/assets/281c1228-a570-4b22-94b2-5fae9dcc46bf) 
-![tumblr_6dfb0ea9113d2ed367330c6e156b918b_b994312b_100](https://github.com/user-attachments/assets/b40e1789-4299-46fc-8650-903e6b779d28)
-
-
-
-
 
 # just general info! ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
 ### interests
