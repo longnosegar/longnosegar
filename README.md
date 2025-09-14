@@ -16,7 +16,7 @@ pls dont use nicknames if we aren't good friends :)
 #### Limbus Company, Welcome to Night Vale, Phighting!, Vocaloid, Ikea, Splatoon 3, Homestuck, Dreams of an Insomniac, Vita Carnis, FNAF, Hermitcraft and the Life series, old technology, Warrior Cats, Inanimate Insanity, Pokemon, and SCP. 
 
 
-![cat2](https://github.com/user-attachments/assets/28324b35-b1b7-4257-9202-d992272924d0) 
+![cat2 (1)](https://github.com/user-attachments/assets/bb248656-4d61-472b-aab6-7808a935f905)
 
 
 
