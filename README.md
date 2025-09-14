@@ -20,7 +20,7 @@ i'm in a relationship, and absolutely love my boyfriend!! please dont flirt with
 
 # just general info! ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
 ### interests
-#### Limbus Company, Welcome to Night Vale, Splatoon 3, Homestuck, Dreams of an Insomniac and Pastraspec's works in general, Vita Carnis, FNAF:SB, Hermitcraft and the Life series, old technology, Minecraft
+#### Limbus Company, Welcome to Night Vale, Phighting!, Vocaloid, Ikea, Splatoon 3, Homestuck, Dreams of an Insomniac, Vita Carnis, FNAF, Hermitcraft and the Life series, old technology, Warrior Cats, Inanimate Insanity, Pokemon, and SCP. 
 
 ### DNI
 proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), people who indulge in nsfw (bodily a minor), transgender exclusive radical feminists, lesboys/turigirls (nothing against ANY of you as people), pedophiles and minor attracted people, misogynists, endogenic/non-traumagenic systems, anyone who makes rape jokes under any context.
