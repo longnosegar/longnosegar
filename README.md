@@ -52,11 +52,11 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![tumblr_3409d6decb6a23c02422af2746b263d3_acf1f287_100](https://github.com/user-attachments/assets/04b9856b-4596-43bd-924d-07b27f30235e)
 ![tumblr_75f1cf07b98b2833a656cc82c6455e78_b3677d14_100](https://github.com/user-attachments/assets/fa6f0e97-0722-42cb-8572-e5ff8ff6b713)
 ![tumblr_9f7aa7377efe3125cd1b656005fafed6_4b578370_100](https://github.com/user-attachments/assets/f2df891a-4e84-4150-9a14-dcf78281e22b)
+<img width="99" height="56" alt="tumblr_bd63e1ec36e588b814306d5c4b52f5e3_59e733d6_100" src="https://github.com/user-attachments/assets/9065516d-048c-40a9-a509-9bff4f610887" />
 ![tumblr_0f9cae316534ef9f4591028751a52131_b660ba5e_100](https://github.com/user-attachments/assets/8e02c573-e862-44c3-a0bd-c1852c660ed0)
 ![tumblr_81cf57fe5c328f3fc98408fe997dce8f_cf2ae4d7_100](https://github.com/user-attachments/assets/a8301637-38cd-4166-9600-e3acee785632)
 ![tumblr_fa02b46b8b5500870223b2129d7218a9_2497b93b_100](https://github.com/user-attachments/assets/4b775872-92b5-4b9b-b51f-950333942a69)
 ![tumblr_2df4b1c0029824f53aca67567a386bf4_40e8ba72_250](https://github.com/user-attachments/assets/98df67dd-c09a-407a-a6ee-b5df6e0a2a36)
-![tumblr_dab34ad0998076c478627331a91fc423_ff867008_250](https://github.com/user-attachments/assets/ebb3a0cb-31ce-412d-ad80-b796954c8dc8)
 <img width="99" height="56" alt="tumblr_bee2d67b9a0c39addb01ee55b96dfc6d_905005f5_250 (1)" src="https://github.com/user-attachments/assets/342ba1be-a6bc-4175-bd58-11b6b83dd13f" />
 ![tumblr_81aa99e18bb73c638b8312c799ab953e_666f7134_100](https://github.com/user-attachments/assets/8576a231-846e-427d-9435-5306c1fa0baf)
 ![tumblr_f41a2ffbe70848af6b0aacc8469c32a0_e64999b1_100](https://github.com/user-attachments/assets/c9da749f-d5cc-4514-9555-db797868eff7)
@@ -109,10 +109,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 
 # ty for reading! have a great day X)
 
-![tumblr_1287969823dba6ed99fb1b03273ec3b7_ea2690da_1280](https://github.com/user-attachments/assets/7fcfdf93-2ad4-4d80-9919-f9d9ed7cf5fb)
-
-
-## all graphics are ripped directly from tumblr
+<img width="2048" height="295" alt="tumblr_4174a05a8e292cebe4d924e508f8c106_d667afaa_2048" src="https://github.com/user-attachments/assets/b0402652-c1c2-48ac-b3cc-5c27483876e9" />
 
 <!--
 **entykk/entykk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
