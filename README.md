@@ -2,7 +2,6 @@
 ![tumblr_f9e439ce15c2137ea786ea1b271743e0_ff58ae1a_1280](https://github.com/user-attachments/assets/360635e1-85f6-4380-89fb-2458cd37a7ff)
 
 ## Hii, i'm Charlie!!
-<sub>15 yrs old as of 8/31</sub>
 
 #### i'm transmasculine, as well as demisexual and biromantic
 
@@ -10,6 +9,8 @@ i'm in a relationship, and absolutely love my boyfriend!! please dont flirt with
 
   DONT use pet names/nicknames if we aren't close. just call me Charlie. 
   If i know u pretty well u can totally use nicknames, otherwise i'd rather you refrain
+
+<sub>15 yrs old as of 8/31</sub>
 
 ## MAIN FRONTS
 -  CHARLIE - he / star - Host + Memory Holder 
