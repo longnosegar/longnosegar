@@ -62,6 +62,9 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 ![tumblr_f41a2ffbe70848af6b0aacc8469c32a0_e64999b1_100](https://github.com/user-attachments/assets/c9da749f-d5cc-4514-9555-db797868eff7)
 ![tumblr_f6b4fc8818461079b524fea70ec9f761_732f4c10_100](https://github.com/user-attachments/assets/231fc8cb-114c-4fdd-84cd-aa313abe31a7)
 <img width="101" height="58" alt="tumblr_5aacac658e1ff71eab56b0ac874f755c_79031d86_250" src="https://github.com/user-attachments/assets/9b3d8383-f6a7-46d3-b8c2-a91c38592c81" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5401da30-4d0e-4d23-8529-18442ab60318" />
+<img width="99" height="57" alt="tumblr_23e7d37b38234f55811b6ede1c4635af_814ecb7e_100" src="https://github.com/user-attachments/assets/c84579b6-883d-4efd-9c92-702306924ce9" />
+
 
 
 
@@ -116,14 +119,7 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 ![tumblr_eb8c59c4c9db385eed836d1a3b0e5f2c_bb19e737_250](https://github.com/user-attachments/assets/81c0deec-7cb7-42c6-a187-708d6084d331)
 ![tumblr_a9f3f0515845ae5cc7e9bdda21f6729a_dc6adf82_250](https://github.com/user-attachments/assets/218dd92e-00ec-41a8-be7a-b1668ea2e4ab)
 ![tumblr_778e5b094745cf1265f23d7bcfc7ef02_1f7ec770_250](https://github.com/user-attachments/assets/cf928e99-c5d9-4141-8341-dab2cbfe96fc)
-
-
-![tumblr_4542e9c797cdbafc2965ba7ddceeb690_7917d622_250](https://github.com/user-attachments/assets/d1a1c9a5-b2f7-453e-ba9b-6fcb8b0bc7d8)
-![tumblr_ca26a4d943bdca0ebfa5cf1538b7d8f8_18d16445_250](https://github.com/user-attachments/assets/7887d86d-42b6-47e3-89db-28a28c59fb86)
-![tumblr_c4a2562db76c99f009c39af608574f89_18e9ef74_250](https://github.com/user-attachments/assets/da688481-c0ef-4312-93e2-37ba37ec0326)
-![tumblr_6fb941792a31e3a68ee6ded0c7e2f625_c255059f_250](https://github.com/user-attachments/assets/400ad57d-88cd-4709-a48b-f788f9bbd033)
-![tumblr_c27df0bc56dcfb846bea7785bf435965_56ebc778_250](https://github.com/user-attachments/assets/26f38a66-88de-4138-bd5b-018e1cb38591)
-![tumblr_c2698a1001c5a425dc22ed2a9db065af_54c805ca_250](https://github.com/user-attachments/assets/d068f2a4-fbd1-4afe-9451-46078ada16be)
+![tumblr_e07fbe0d2ab272557c906b34f43a1087_2e91e2d5_250](https://github.com/user-attachments/assets/41124476-a19a-48d3-9aa0-be936d3aa498)
 
 
 
