@@ -6,7 +6,7 @@
 ### welcome to my page !! 
 
 #### Hii, i'm Charlie!!
-#- 15 yrs old as of 8/31 
+<sub>15 yrs old as of 8/31</sub>
 
 #### i'm transmasculine, as well as demisexual and biromantic
 
