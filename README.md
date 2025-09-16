@@ -99,6 +99,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![tumblr_cf14d21baf723fe091090e8c69225f27_6aa05122_250](https://github.com/user-attachments/assets/d7a887e0-14ae-4a6f-af7d-cdd42db42735)
 ![tumblr_f4fa447638a592977c9ae2092550a85a_6ae83647_250](https://github.com/user-attachments/assets/601f964c-c7c5-4b39-8779-b010c7688f6d)
 ![tumblr_f5eb77aee6b1463234648f28320251c8_c81bcd68_250](https://github.com/user-attachments/assets/0e1e8281-66d4-495b-ab66-b910a25cd90d)
+![tumblr_457f41d83d2e26e431937863c033a9ce_cc7effb0_250](https://github.com/user-attachments/assets/abdf7ecd-2dbf-4c9f-b1f2-2aa82b5d8aed)
 ![tumblr_a9aee366abbb1b87e0415601e2db305f_bea4061e_250](https://github.com/user-attachments/assets/1281bd6d-6639-4cf5-8a61-03e7655b4d15)
 ![tumblr_09759965f7cd26bf98b28664f5b1085a_7ff180ae_250](https://github.com/user-attachments/assets/09298ea9-4e3c-40b8-96e3-86693edcb55f)
 ![tumblr_0a7562c3b8e6f1d3a7a5a553168d59b2_fc34c012_250](https://github.com/user-attachments/assets/82a4d0a4-08c9-49d2-85ff-777acd02c135)
@@ -126,9 +127,15 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![tumblr_984e7e21a787c24dec0b89c504b6a2ff_0dde9522_250](https://github.com/user-attachments/assets/07bab8a9-0245-4669-998c-deb6969cd96c)
 ![ezgif-808060eb426b68](https://github.com/user-attachments/assets/09cf2a56-969b-4ba2-95c5-1905585730be)
 ![tumblr_2e40347846a220384a8d2f54f5922a33_445ac2da_250](https://github.com/user-attachments/assets/a8bba151-e2ae-43fd-89a4-9d74b8d266ae)
-
 ![tumblr_f3dfdc4a04aca4cae07dc134df7a67d9_ce5e3885_250](https://github.com/user-attachments/assets/54d343e8-2a18-419d-835c-8b2735c58702)
 ![tumblr_0983b48704983493871646e2c3372e3f_21f27c63_250](https://github.com/user-attachments/assets/11a5b983-7590-411e-b8b1-a254734856dd)
+![tumblr_bfa8e6a8180c8cc90df5c99c4c06a905_495474cf_250](https://github.com/user-attachments/assets/035517f1-136d-443b-88bc-258e073caa48)
+![tumblr_c0483118ad6ab736988491bd5e36903d_3934b91e_250](https://github.com/user-attachments/assets/cc0a7016-059e-4039-ac22-9dac6d972506)
+![tumblr_4207304c1eb29669facd83a6f4f683ca_e29e38ac_250](https://github.com/user-attachments/assets/3607bb72-16f6-4ff4-a64d-4ddc18ec12c6)
+![tumblr_6c9909ed4d7b6eb9c12cf9932dfaf8b1_83b5b613_250](https://github.com/user-attachments/assets/5c778cbc-fd69-4922-a724-267a188f88e6)
+![tumblr_278febcbac292799c5b5a2a171548acf_e304a897_250](https://github.com/user-attachments/assets/2f32c5c0-02d7-42a8-80dd-3adae1cfacbe)
+![tumblr_52732881581a1bc98195e6b280bf00ab_8e938c14_250](https://github.com/user-attachments/assets/83964828-7fa7-47b9-a5b8-29e74333f94a)
+
 
 
 # ty for reading! have a great day X)
