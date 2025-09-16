@@ -1,6 +1,7 @@
 <img width="2048" height="295" alt="tumblr_4174a05a8e292cebe4d924e508f8c106_d667afaa_2048" src="https://github.com/user-attachments/assets/15c2a05f-cfae-4f5e-bdbc-488c872200e7" />
 
-## Hii, i'm Charlie!!
+## Hii, i'm Charlie!! ![tumblr_74773747cc5ac21b8ddac0fdc27145dd_6124939d_75](https://github.com/user-attachments/assets/dd70e299-6dd1-43c4-b6cc-3e107e7943ff)
+
 ### he/it/woof
 transmasculine, demisexual and biromantic
 in a relationship, and i love my boyfriend!! please dont flirt with me :D
@@ -110,6 +111,9 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![tumblr_e07fbe0d2ab272557c906b34f43a1087_2e91e2d5_250](https://github.com/user-attachments/assets/41124476-a19a-48d3-9aa0-be936d3aa498)
 ![tumblr_b798d8750887082d9e95cbb078ab4626_90defaa8_250](https://github.com/user-attachments/assets/ee7e1516-885e-434f-8f75-a3ca80377fb9)
 ![tumblr_ab81d126b09e821571fe6b64c54b60e8_a77ceeaf_250](https://github.com/user-attachments/assets/2560d378-6c90-490d-8120-c071f821b75a)
+![tumblr_33df89a383a78edbade2c6d872e4ecc1_996beaea_250](https://github.com/user-attachments/assets/36b93986-101d-48af-bd6f-abda46df70dd)
+![tumblr_fc8ff6671cf12d881899e064ab664323_f5e40189_250](https://github.com/user-attachments/assets/502eb306-9e41-4982-aadf-32ec21f1b5ea)
+![tumblr_dec8c868dfa20b1ba116946197433669_a73e0a12_250](https://github.com/user-attachments/assets/17896502-7723-43b0-acb9-677b5c50148c)
 
 
 
