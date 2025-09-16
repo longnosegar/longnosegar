@@ -1,5 +1,6 @@
 <img width="2048" height="295" alt="tumblr_4174a05a8e292cebe4d924e508f8c106_d667afaa_2048" src="https://github.com/user-attachments/assets/15c2a05f-cfae-4f5e-bdbc-488c872200e7" />
 
+![tumblr_e41a53eb9378a127b7bcd2fd7456c414_c522b78d_250](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
 ## Hii, i'm Charlie!! ![tumblr_74773747cc5ac21b8ddac0fdc27145dd_6124939d_75](https://github.com/user-attachments/assets/dd70e299-6dd1-43c4-b6cc-3e107e7943ff)
 
 ### he/it/woof
@@ -113,6 +114,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![tumblr_b798d8750887082d9e95cbb078ab4626_90defaa8_250](https://github.com/user-attachments/assets/ee7e1516-885e-434f-8f75-a3ca80377fb9)
 ![tumblr_ab81d126b09e821571fe6b64c54b60e8_a77ceeaf_250](https://github.com/user-attachments/assets/2560d378-6c90-490d-8120-c071f821b75a)
 ![tumblr_33df89a383a78edbade2c6d872e4ecc1_996beaea_250](https://github.com/user-attachments/assets/36b93986-101d-48af-bd6f-abda46df70dd)
+![tumblr_a16254544a394a21ea721aa414dcbdfa_7f9bd17b_250](https://github.com/user-attachments/assets/c5f14f67-6d90-4315-ae42-90d0f0ff6fc5)
 
 
 
