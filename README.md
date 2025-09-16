@@ -109,6 +109,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![tumblr_cfa1c5c7d1c4326edb9c8d6a9dc2b845_bbbd86e0_250](https://github.com/user-attachments/assets/e46ba974-1da0-4ece-90aa-1f064dba67c3)
 ![tumblr_fc8ff6671cf12d881899e064ab664323_f5e40189_250](https://github.com/user-attachments/assets/502eb306-9e41-4982-aadf-32ec21f1b5ea)
 ![tumblr_055c6146c5cbbe6c02f5a4ec7bba63ac_7c6bb2cf_250](https://github.com/user-attachments/assets/39da3218-918a-42be-a473-d76d67f2c5ad)
+![ezgif-8cf991e87994d8](https://github.com/user-attachments/assets/f2e3944b-e74b-4441-9669-e0a4123ef469)
 ![tumblr_aaf1d7b69d4fc0b2e2328992b99f08b5_7df9d657_250](https://github.com/user-attachments/assets/59054458-7796-420b-b02a-7c0868a66806)
 ![tumblr_a9f3f0515845ae5cc7e9bdda21f6729a_dc6adf82_250](https://github.com/user-attachments/assets/218dd92e-00ec-41a8-be7a-b1668ea2e4ab)
 ![tumblr_e07fbe0d2ab272557c906b34f43a1087_2e91e2d5_250](https://github.com/user-attachments/assets/41124476-a19a-48d3-9aa0-be936d3aa498)
@@ -117,6 +118,10 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![tumblr_33df89a383a78edbade2c6d872e4ecc1_996beaea_250](https://github.com/user-attachments/assets/36b93986-101d-48af-bd6f-abda46df70dd)
 ![tumblr_a16254544a394a21ea721aa414dcbdfa_7f9bd17b_250](https://github.com/user-attachments/assets/c5f14f67-6d90-4315-ae42-90d0f0ff6fc5)
 ![tumblr_c19cb05627deb63c43e4e42a5cf19308_f6a2c123_250](https://github.com/user-attachments/assets/6c57f87c-fc96-4c47-b640-021f9d9dd7aa)
+![tumblr_5e1ecdccc61b18450c7c4def77ad4bc1_29617997_250](https://github.com/user-attachments/assets/f488889f-ecc9-4e16-a46f-2b3ac20bb09e)
+![tumblr_433e8d35a682a2e56d3899608ca9ea48_ac088ad7_250](https://github.com/user-attachments/assets/275e19d6-fddc-44ca-85c7-14411b9ea742)
+![tumblr_984e7e21a787c24dec0b89c504b6a2ff_0dde9522_250](https://github.com/user-attachments/assets/07bab8a9-0245-4669-998c-deb6969cd96c)
+![ezgif-808060eb426b68](https://github.com/user-attachments/assets/09cf2a56-969b-4ba2-95c5-1905585730be)
 
 
 
