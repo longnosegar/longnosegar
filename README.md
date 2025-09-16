@@ -88,6 +88,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![tumblr_6d411ff8a1078b323346a5a516dcbfac_2a9d657a_250](https://github.com/user-attachments/assets/6676a739-dd09-473c-aa82-96bbe387ef74)
 ![tumblr_6e68045d5a2af89729ed6f9b70c63625_e3e4f48b_250](https://github.com/user-attachments/assets/2bb45104-6aca-404c-a807-f3a521b8e2cf)
 ![tumblr_523f4aa0438cb2a9513083c01dec3e9d_b7150482_250](https://github.com/user-attachments/assets/a5090fe0-75a8-41ee-8cbd-4910aeab51b1)
+![ezgif-8b004b31b868d0](https://github.com/user-attachments/assets/a7f9695e-a9b2-4bb2-aa9f-7af3e2f2c4a9)
 ![tumblr_3a833307effe142cdf09ee878ffe4201_d865d9ac_250](https://github.com/user-attachments/assets/482b6043-f3f3-43ce-8087-3dd121f0ecb6)
 ![tumblr_1924abf12d20626a7b1e5042eab130ea_134373f1_250](https://github.com/user-attachments/assets/6d1a9439-d00c-40ce-a1dc-1465fcfeec28)
 ![tumblr_a188429940ba6a3db7c18d187f7a8c60_b864f242_250](https://github.com/user-attachments/assets/1a10cad1-93a5-4eff-b903-6953b3be245c)
@@ -109,7 +110,6 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![tumblr_cfa1c5c7d1c4326edb9c8d6a9dc2b845_bbbd86e0_250](https://github.com/user-attachments/assets/e46ba974-1da0-4ece-90aa-1f064dba67c3)
 ![tumblr_fc8ff6671cf12d881899e064ab664323_f5e40189_250](https://github.com/user-attachments/assets/502eb306-9e41-4982-aadf-32ec21f1b5ea)
 ![tumblr_055c6146c5cbbe6c02f5a4ec7bba63ac_7c6bb2cf_250](https://github.com/user-attachments/assets/39da3218-918a-42be-a473-d76d67f2c5ad)
-![ezgif-8cf991e87994d8](https://github.com/user-attachments/assets/f2e3944b-e74b-4441-9669-e0a4123ef469)
 ![tumblr_aaf1d7b69d4fc0b2e2328992b99f08b5_7df9d657_250](https://github.com/user-attachments/assets/59054458-7796-420b-b02a-7c0868a66806)
 ![tumblr_a9f3f0515845ae5cc7e9bdda21f6729a_dc6adf82_250](https://github.com/user-attachments/assets/218dd92e-00ec-41a8-be7a-b1668ea2e4ab)
 ![tumblr_e07fbe0d2ab272557c906b34f43a1087_2e91e2d5_250](https://github.com/user-attachments/assets/41124476-a19a-48d3-9aa0-be936d3aa498)
@@ -122,7 +122,6 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![tumblr_433e8d35a682a2e56d3899608ca9ea48_ac088ad7_250](https://github.com/user-attachments/assets/275e19d6-fddc-44ca-85c7-14411b9ea742)
 ![tumblr_984e7e21a787c24dec0b89c504b6a2ff_0dde9522_250](https://github.com/user-attachments/assets/07bab8a9-0245-4669-998c-deb6969cd96c)
 ![ezgif-808060eb426b68](https://github.com/user-attachments/assets/09cf2a56-969b-4ba2-95c5-1905585730be)
-
 
 
 # ty for reading! have a great day X)
