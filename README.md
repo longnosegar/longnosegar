@@ -32,7 +32,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 
 ##### dont be a creep pls
 
-<img width="1080" height="82" alt="tumblr_ed3ad903301dd8f900f2d374d6a45b53_73a7eaa7_1280" src="https://github.com/user-attachments/assets/302b3ea6-8493-4708-9c56-86fe78067fc2" />
+<img width="1080" height="65" alt="tumblr_ed3ad903301dd8f900f2d374d6a45b53_73a7eaa7_1280" src="https://github.com/user-attachments/assets/302b3ea6-8493-4708-9c56-86fe78067fc2" />
 
 
 
