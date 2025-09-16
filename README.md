@@ -133,6 +133,8 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![tumblr_6c9909ed4d7b6eb9c12cf9932dfaf8b1_83b5b613_250](https://github.com/user-attachments/assets/5c778cbc-fd69-4922-a724-267a188f88e6)
 ![tumblr_278febcbac292799c5b5a2a171548acf_e304a897_250](https://github.com/user-attachments/assets/2f32c5c0-02d7-42a8-80dd-3adae1cfacbe)
 ![tumblr_52732881581a1bc98195e6b280bf00ab_8e938c14_250](https://github.com/user-attachments/assets/83964828-7fa7-47b9-a5b8-29e74333f94a)
+![tumblr_c98ffaea146f9f8c3db7b3dea255a9dd_6bcbec88_250](https://github.com/user-attachments/assets/e9c2e24a-d4bd-471d-b013-761f73321641)
+![tumblr_716ab86e162db4d581bb136e19d61430_0814563f_250](https://github.com/user-attachments/assets/51eb546a-62d8-4069-8fdb-c8bfea090739)
 
 
 
