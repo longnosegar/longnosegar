@@ -140,7 +140,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 
 # ty for reading! have a great day X)
 
-<img width="440" height="440" alt="amen bro" src="https://github.com/user-attachments/assets/9561db53-d770-4213-a540-7589e6ffe40a" />
+<img width="650" height="650" alt="amen bro" src="https://github.com/user-attachments/assets/9561db53-d770-4213-a540-7589e6ffe40a" />
 
 <!--
 **entykk/entykk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
