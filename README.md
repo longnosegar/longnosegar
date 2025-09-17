@@ -28,6 +28,9 @@ pls dont use nicknames if we aren't good friends :)
 ### DNI
 proshipper, NSFW, transgender exclusive radical feminists, pedophiles and minor attracted people, misogynists, endogenic/non-traumagenic systems, anyone who makes rape jokes under any context, abelists, etc. 
 
+![tumblr_5bbd5945250bba62f268058ee0391156_fee97209_100](https://github.com/user-attachments/assets/281c1228-a570-4b22-94b2-5fae9dcc46bf) 
+![tumblr_6dfb0ea9113d2ed367330c6e156b918b_b994312b_100](https://github.com/user-attachments/assets/b40e1789-4299-46fc-8650-903e6b779d28)
+
 I block freely, so even if you aren't one of these, i may still block you!!
 
 ##### dont be a creep pls
