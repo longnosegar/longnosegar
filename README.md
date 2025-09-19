@@ -5,7 +5,7 @@
 ### he/it/woof
 ![tumblr_e41a53eb9378a127b7bcd2fd7456c414_c522b78d_250](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
 
-transmasculine, demisexual and biromantic
+transmasculine, demisexual and biromantic.
 in a relationship, and i love my boyfriend!! please dont flirt with me :D
 
 <sub>15 yrs old as of 8/31</sub>
