@@ -56,7 +56,6 @@ I block freely, so even if you aren't one of these, i may still block you!!
 
 ![tumblr_d1c58f85cdcd6d78bc5c3903c10384d2_993036fc_250](https://github.com/user-attachments/assets/778dddf8-5bfb-4b64-be92-c952f42e6a33)
 ![tumblr_8031b31eb910c5ff4e5cbb766ebdde03_6f644c13_400_225x30](https://github.com/user-attachments/assets/7b923f53-2198-42e6-8656-43fd5d54a6d6)
-![tumblr_8b44e1effc925838136026c9c1a425a8_f14f4412_640_225x30](https://github.com/user-attachments/assets/1c8947ff-1bbe-44e9-aa82-e32439887133)
 ![tumblr_fd48d38289188d56d83730d44e724c88_a9df67b3_250](https://github.com/user-attachments/assets/1a3b56e9-1e36-4aa4-947b-37decc73f166)
 
 
