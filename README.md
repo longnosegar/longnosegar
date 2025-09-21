@@ -1,4 +1,5 @@
 <img width="2048" height="295" alt="tumblr_4174a05a8e292cebe4d924e508f8c106_d667afaa_2048" src="https://github.com/user-attachments/assets/15c2a05f-cfae-4f5e-bdbc-488c872200e7" />
+<img width="2048" height="295" alt="Longnose_Gar (1)" src="https://github.com/user-attachments/assets/1f082ed8-65f4-44f0-b46b-1828396f02bd" />
 
 ## Hii, i'm Charlie!! ![tumblr_74773747cc5ac21b8ddac0fdc27145dd_6124939d_75](https://github.com/user-attachments/assets/dd70e299-6dd1-43c4-b6cc-3e107e7943ff)
 
