@@ -1,4 +1,4 @@
-<img width="2048" height="295" alt="Longnose-Gar-removebg-preview_1_optimized" src="https://github.com/user-attachments/assets/6f4836ba-92ce-4514-b0a6-4010b036495a" />
+<img width="2048" height="510" alt="Longnose-Gar-removebg-preview_1_optimized" src="https://github.com/user-attachments/assets/6f4836ba-92ce-4514-b0a6-4010b036495a" />
 
 ## Hii, i'm Charlie!! ![tumblr_74773747cc5ac21b8ddac0fdc27145dd_6124939d_75](https://github.com/user-attachments/assets/dd70e299-6dd1-43c4-b6cc-3e107e7943ff)
 
