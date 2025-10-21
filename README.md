@@ -3,7 +3,7 @@
 ## Hii, i'm Charlie!! ![tumblr_74773747cc5ac21b8ddac0fdc27145dd_6124939d_75](https://github.com/user-attachments/assets/dd70e299-6dd1-43c4-b6cc-3e107e7943ff)
 
 ### he/it/woof
-![tumblr_e41a53eb9378a127b7bcd2fd7456c414_c522b78d_250](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
+![worlds_worst_coder](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
 
 transmasculine, demisexual and biromantic.
 in a relationship, and i love my boyfriend!! please dont flirt with me :D
@@ -12,7 +12,7 @@ in a relationship, and i love my boyfriend!! please dont flirt with me :D
 
 pls dont use nicknames if we aren't good friends :) 
 
-![tumblr_a7615491c79cac26d15c6732629c8e9e_d4952872_100](https://github.com/user-attachments/assets/3c1f9ff6-1a4b-42c7-a348-4864a11ae612)
+![spinny computer](https://github.com/user-attachments/assets/3c1f9ff6-1a4b-42c7-a348-4864a11ae612)
 
 
 # just general info! ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
