@@ -1,4 +1,4 @@
-<img width="2048" height="312" alt="Screenshot_2025-10-06_1 40 31_PM-removebg-preview (1)" src="https://github.com/user-attachments/assets/a6a7f670-2523-4795-80a1-9b0696979831" />
+<img width="2048" height="312" alt="Longnosegar" src="https://github.com/user-attachments/assets/a6a7f670-2523-4795-80a1-9b0696979831" />
 
 ## Hii, i'm Charlie!! ![tumblr_74773747cc5ac21b8ddac0fdc27145dd_6124939d_75](https://github.com/user-attachments/assets/dd70e299-6dd1-43c4-b6cc-3e107e7943ff)
 
