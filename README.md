@@ -1,6 +1,6 @@
 <img width="2048" height="312" alt="Longnosegar" src="https://github.com/user-attachments/assets/a6a7f670-2523-4795-80a1-9b0696979831" />
 
-## Hii, i'm Charlie!! ![tumblr_74773747cc5ac21b8ddac0fdc27145dd_6124939d_75](https://github.com/user-attachments/assets/dd70e299-6dd1-43c4-b6cc-3e107e7943ff)
+## Hii, i'm Charlie!! ![avian](https://github.com/user-attachments/assets/dd70e299-6dd1-43c4-b6cc-3e107e7943ff)
 
 ### he/it/woof
 ![worlds_worst_coder](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
@@ -15,12 +15,12 @@ pls dont use nicknames if we aren't good friends :)
 ![spinny computer](https://github.com/user-attachments/assets/3c1f9ff6-1a4b-42c7-a348-4864a11ae612)
 
 
-# just general info! ![gfnwwet](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
+# just general info! ![tornado](https://github.com/user-attachments/assets/a4d8344e-4729-4eba-b77f-06c82aa13d54)
 ### interests
 #### Limbus Company, Welcome to Night Vale, Phighting!, Vocaloid, Ikea, Splatoon 3, Homestuck, Dreams of an Insomniac, Vita Carnis, FNAF, Hermitcraft and the Life series, old technology, Warrior Cats, Inanimate Insanity, Pokemon, and SCP. 
 
 
-![cat2 (1)](https://github.com/user-attachments/assets/bb248656-4d61-472b-aab6-7808a935f905)
+![cat running](https://github.com/user-attachments/assets/bb248656-4d61-472b-aab6-7808a935f905)
 
 
 
@@ -28,14 +28,14 @@ pls dont use nicknames if we aren't good friends :)
 ### DNI
 proshipper, NSFW, transgender exclusive radical feminists, pedophiles and minor attracted people, misogynists, endogenic/non-traumagenic systems, anyone who makes rape jokes under any context, abelists, etc. 
 
-![tumblr_5bbd5945250bba62f268058ee0391156_fee97209_100](https://github.com/user-attachments/assets/281c1228-a570-4b22-94b2-5fae9dcc46bf) 
-![tumblr_6dfb0ea9113d2ed367330c6e156b918b_b994312b_100](https://github.com/user-attachments/assets/b40e1789-4299-46fc-8650-903e6b779d28)
+![karkat stare](https://github.com/user-attachments/assets/281c1228-a570-4b22-94b2-5fae9dcc46bf) 
+![kanaya stare](https://github.com/user-attachments/assets/b40e1789-4299-46fc-8650-903e6b779d28)
 
 I block freely, so even if you aren't one of these, i may still block you!!
 
 ##### dont be a creep pls
 
-<img width="1080" height="65" alt="tumblr_ed3ad903301dd8f900f2d374d6a45b53_73a7eaa7_1280" src="https://github.com/user-attachments/assets/302b3ea6-8493-4708-9c56-86fe78067fc2" />
+<img width="1080" height="65" alt="dog bone banner" src="https://github.com/user-attachments/assets/302b3ea6-8493-4708-9c56-86fe78067fc2" />
 
 
 
