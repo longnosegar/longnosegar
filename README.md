@@ -41,55 +41,55 @@ I block freely, so even if you aren't one of these, i may still block you!!
 
 # blinky collection  ![KPqb1S5](https://github.com/user-attachments/assets/5303724b-5cb0-42e5-a166-4d76002a6bac)
 
-![tumblr_fa7cb70163f5b7507c7aa60e6d055724_a0e6fb7e_1280](https://github.com/user-attachments/assets/83a12a72-68f4-4e7f-a1dc-c890f71d0020)
-![tumblr_3c0cec249839f9d8df59fa349a2153a6_1ab5745e_640](https://github.com/user-attachments/assets/76cd0c7a-d094-4d46-a2fa-73ff374ef23f)
-![tumblr_15fffd376c958dad956eeea3feb19ee1_5d106925_540](https://github.com/user-attachments/assets/07c09169-5389-4d96-9454-77235e1ee0d2)
-<img width="540" height="116" alt="348909016-d7a538a9-1f49-4859-9102-f665bf74651c (2)" src="https://github.com/user-attachments/assets/80c31d5f-921f-4aaf-b909-f15c3c923519" />
+![the front bottoms](https://github.com/user-attachments/assets/83a12a72-68f4-4e7f-a1dc-c890f71d0020)
+![fav is grian](https://github.com/user-attachments/assets/76cd0c7a-d094-4d46-a2fa-73ff374ef23f)
+![lightbrush](https://github.com/user-attachments/assets/07c09169-5389-4d96-9454-77235e1ee0d2)
+<img width="540" height="116" alt="user likes doai" src="https://github.com/user-attachments/assets/80c31d5f-921f-4aaf-b909-f15c3c923519" />
 
 
 
 
-![tumblr_d1a3023bc88c3839cb4221dc1b89882e_08bdceae_400](https://github.com/user-attachments/assets/0248b10e-dbe1-4e33-b3fd-d69bf265d698)
-![tumblr_7267bb4a09f3798e2ea456d99bb294c8_e7e89e64_400](https://github.com/user-attachments/assets/344b3582-dc41-47b9-a2a5-20e5b421e3da)
-![tumblr_d429fedccb4b642d3ee0dbc5483fee92_75e946e8_400](https://github.com/user-attachments/assets/84fbf3f9-151a-4494-a173-6aeb45a8d069)
-![tumblr_9476698634883268ecde247e4486658f_bbbb475c_400](https://github.com/user-attachments/assets/c8cde097-17c7-45e3-82cb-37323ead31fd)
+![oblivion yellow](https://github.com/user-attachments/assets/0248b10e-dbe1-4e33-b3fd-d69bf265d698)
+![isolate orange](https://github.com/user-attachments/assets/344b3582-dc41-47b9-a2a5-20e5b421e3da)
+![inferno red](https://github.com/user-attachments/assets/84fbf3f9-151a-4494-a173-6aeb45a8d069)
+![lusty bergundy](https://github.com/user-attachments/assets/c8cde097-17c7-45e3-82cb-37323ead31fd)
 
-![tumblr_d1c58f85cdcd6d78bc5c3903c10384d2_993036fc_250](https://github.com/user-attachments/assets/778dddf8-5bfb-4b64-be92-c952f42e6a33)
-![tumblr_8031b31eb910c5ff4e5cbb766ebdde03_6f644c13_400_225x30](https://github.com/user-attachments/assets/7b923f53-2198-42e6-8656-43fd5d54a6d6)
-![tumblr_fd48d38289188d56d83730d44e724c88_a9df67b3_250](https://github.com/user-attachments/assets/1a3b56e9-1e36-4aa4-947b-37decc73f166)
-
-
-
-![tumblr_1587444382105fb6774da80145174bb4_5f1f19b3_250](https://github.com/user-attachments/assets/3a2ace86-f7aa-4a78-8f02-7c72976303ec)
-![tumblr_3409d6decb6a23c02422af2746b263d3_acf1f287_100](https://github.com/user-attachments/assets/04b9856b-4596-43bd-924d-07b27f30235e)
-![tumblr_75f1cf07b98b2833a656cc82c6455e78_b3677d14_100](https://github.com/user-attachments/assets/fa6f0e97-0722-42cb-8572-e5ff8ff6b713)
-![tumblr_9f7aa7377efe3125cd1b656005fafed6_4b578370_100](https://github.com/user-attachments/assets/f2df891a-4e84-4150-9a14-dcf78281e22b)
-<img width="99" height="56" alt="tumblr_bd63e1ec36e588b814306d5c4b52f5e3_59e733d6_100" src="https://github.com/user-attachments/assets/9065516d-048c-40a9-a509-9bff4f610887" />
-![tumblr_81cf57fe5c328f3fc98408fe997dce8f_cf2ae4d7_100](https://github.com/user-attachments/assets/a8301637-38cd-4166-9600-e3acee785632)
-![tumblr_fa02b46b8b5500870223b2129d7218a9_2497b93b_100](https://github.com/user-attachments/assets/4b775872-92b5-4b9b-b51f-950333942a69)
-![tumblr_2df4b1c0029824f53aca67567a386bf4_40e8ba72_250](https://github.com/user-attachments/assets/98df67dd-c09a-407a-a6ee-b5df6e0a2a36)
-<img width="99" height="56" alt="tumblr_bee2d67b9a0c39addb01ee55b96dfc6d_905005f5_250 (1)" src="https://github.com/user-attachments/assets/342ba1be-a6bc-4175-bd58-11b6b83dd13f" />
-![tumblr_81aa99e18bb73c638b8312c799ab953e_666f7134_100](https://github.com/user-attachments/assets/8576a231-846e-427d-9435-5306c1fa0baf)
-![tumblr_f41a2ffbe70848af6b0aacc8469c32a0_e64999b1_100](https://github.com/user-attachments/assets/c9da749f-d5cc-4514-9555-db797868eff7)
-![tumblr_71a7f0892ee7909475f0dbf07c763eca_65213801_100](https://github.com/user-attachments/assets/ab033a76-d05e-4206-9557-1c91181329fb)
-<img width="101" height="58" alt="tumblr_5aacac658e1ff71eab56b0ac874f755c_79031d86_250" src="https://github.com/user-attachments/assets/9b3d8383-f6a7-46d3-b8c2-a91c38592c81" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5401da30-4d0e-4d23-8529-18442ab60318" />
-<img width="99" height="57" alt="tumblr_23e7d37b38234f55811b6ede1c4635af_814ecb7e_100" src="https://github.com/user-attachments/assets/c84579b6-883d-4efd-9c92-702306924ce9" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2ccd85a1-f508-4145-8625-e4dbdb08f5f0" />
+![bigfin squid](https://github.com/user-attachments/assets/778dddf8-5bfb-4b64-be92-c952f42e6a33)
+![the calender](https://github.com/user-attachments/assets/7b923f53-2198-42e6-8656-43fd5d54a6d6)
+![save a horse](https://github.com/user-attachments/assets/1a3b56e9-1e36-4aa4-947b-37decc73f166)
 
 
+
+![harmony dance](https://github.com/user-attachments/assets/3a2ace86-f7aa-4a78-8f02-7c72976303ec)
+![diet is barbed wire](https://github.com/user-attachments/assets/04b9856b-4596-43bd-924d-07b27f30235e)
+![meet you irl](https://github.com/user-attachments/assets/fa6f0e97-0722-42cb-8572-e5ff8ff6b713)
+![fnaf](https://github.com/user-attachments/assets/f2df891a-4e84-4150-9a14-dcf78281e22b)
+<img width="99" height="56" alt="don quixote" src="https://github.com/user-attachments/assets/9065516d-048c-40a9-a509-9bff4f610887" />
+![god is having gay sex](https://github.com/user-attachments/assets/a8301637-38cd-4166-9600-e3acee785632)
+![disembowel](https://github.com/user-attachments/assets/4b775872-92b5-4b9b-b51f-950333942a69)
+![stamp on fire](https://github.com/user-attachments/assets/98df67dd-c09a-407a-a6ee-b5df6e0a2a36)
+<img width="99" height="56" alt="hong lu" src="https://github.com/user-attachments/assets/342ba1be-a6bc-4175-bd58-11b6b83dd13f" />
+![what youre up against](https://github.com/user-attachments/assets/8576a231-846e-427d-9435-5306c1fa0baf)
+![femtanyl](https://github.com/user-attachments/assets/c9da749f-d5cc-4514-9555-db797868eff7)
+![ctrl f4](https://github.com/user-attachments/assets/ab033a76-d05e-4206-9557-1c91181329fb)
+<img width="101" height="58" alt="im a pet" src="https://github.com/user-attachments/assets/9b3d8383-f6a7-46d3-b8c2-a91c38592c81" />
+<img width="99" height="56" alt="love my bf" src="https://github.com/user-attachments/assets/5401da30-4d0e-4d23-8529-18442ab60318" />
+<img width="99" height="57" alt="homosexual activities" src="https://github.com/user-attachments/assets/c84579b6-883d-4efd-9c92-702306924ce9" />
+<img width="99" height="56" alt="ishmael" src="https://github.com/user-attachments/assets/2ccd85a1-f508-4145-8625-e4dbdb08f5f0" />
 
 
 
 
-![meow](https://github.com/user-attachments/assets/a2519aa2-5780-44a5-a4d8-62b483ea06cf) 
-![tumblr_8e4a59a3bc3aa75c20897869e194d772_46bc1141_250](https://github.com/user-attachments/assets/e91bc6e7-5332-4e52-bd49-1822e87fb8b4)
-![tumblr_9080e46653decbc3147654a715d9c1a0_5ffc0461_250](https://github.com/user-attachments/assets/400fd626-b588-4740-86e0-db3ea80c1099)
-![tumblr_4fdf051c63de8e4c2055f9f12ca7db66_4bd9038f_250](https://github.com/user-attachments/assets/366fe5bb-bd88-4319-a040-41eab45eefca)
-![tumblr_289fe39a190bca7f32b8465fa91803fd_8e0b4e0d_250](https://github.com/user-attachments/assets/5d310f28-b86a-4790-aa11-deb6cf767ced)
-![tumblr_dec8c868dfa20b1ba116946197433669_a73e0a12_250](https://github.com/user-attachments/assets/17896502-7723-43b0-acb9-677b5c50148c)
-![tumblr_26ac11c0f262b05d7c0666625bd01c4a_3c32bbef_250](https://github.com/user-attachments/assets/c1e5eca4-acd1-4b71-a53f-c0d67f05ca8f)
-![ezgif-7241b04015ddda](https://github.com/user-attachments/assets/f0d08846-c9dc-4915-a0f6-12e5c9d48db6)
+
+
+![where tf am i](https://github.com/user-attachments/assets/a2519aa2-5780-44a5-a4d8-62b483ea06cf) 
+![gaze at stars](https://github.com/user-attachments/assets/e91bc6e7-5332-4e52-bd49-1822e87fb8b4)
+![abolish the state](https://github.com/user-attachments/assets/400fd626-b588-4740-86e0-db3ea80c1099)
+![online and cant get off](https://github.com/user-attachments/assets/366fe5bb-bd88-4319-a040-41eab45eefca)
+![computer never sleeps](https://github.com/user-attachments/assets/5d310f28-b86a-4790-aa11-deb6cf767ced)
+![best pussy disorder](https://github.com/user-attachments/assets/17896502-7723-43b0-acb9-677b5c50148c)
+![command](https://github.com/user-attachments/assets/c1e5eca4-acd1-4b71-a53f-c0d67f05ca8f)
+![prospit dreamer](https://github.com/user-attachments/assets/f0d08846-c9dc-4915-a0f6-12e5c9d48db6)
 ![tumblr_99b6a8f4bceb1873ec540bdc3efeaa9f_f8dd32cf_250](https://github.com/user-attachments/assets/25b11867-12f7-421a-97b1-df91913f0651)
 ![tumblr_a399188d7b65d88a6da0f165fb250b9a_b1b314ae_250](https://github.com/user-attachments/assets/e3906efa-112c-4c40-abd8-b6f32e877cf0)
 ![tumblr_6d411ff8a1078b323346a5a516dcbfac_2a9d657a_250](https://github.com/user-attachments/assets/6676a739-dd09-473c-aa82-96bbe387ef74)
