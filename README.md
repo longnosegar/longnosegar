@@ -44,7 +44,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![the front bottoms](https://github.com/user-attachments/assets/83a12a72-68f4-4e7f-a1dc-c890f71d0020)
 ![fav is grian](https://github.com/user-attachments/assets/76cd0c7a-d094-4d46-a2fa-73ff374ef23f)
 ![lightbrush](https://github.com/user-attachments/assets/07c09169-5389-4d96-9454-77235e1ee0d2)
-<img width="540" height="116" alt="user likes doai" src="https://github.com/user-attachments/assets/80c31d5f-921f-4aaf-b909-f15c3c923519" />
+![user likes doai](https://github.com/user-attachments/assets/80c31d5f-921f-4aaf-b909-f15c3c923519)
 
 
 
@@ -64,7 +64,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![diet is barbed wire](https://github.com/user-attachments/assets/04b9856b-4596-43bd-924d-07b27f30235e)
 ![meet you irl](https://github.com/user-attachments/assets/fa6f0e97-0722-42cb-8572-e5ff8ff6b713)
 ![fnaf](https://github.com/user-attachments/assets/f2df891a-4e84-4150-9a14-dcf78281e22b)
-<img width="99" height="56" alt="don quixote" src="https://github.com/user-attachments/assets/9065516d-048c-40a9-a509-9bff4f610887" />
+![don quixote](https://github.com/user-attachments/assets/9065516d-048c-40a9-a509-9bff4f610887)
 ![god is having gay sex](https://github.com/user-attachments/assets/a8301637-38cd-4166-9600-e3acee785632)
 ![disembowel](https://github.com/user-attachments/assets/4b775872-92b5-4b9b-b51f-950333942a69)
 ![stamp on fire](https://github.com/user-attachments/assets/98df67dd-c09a-407a-a6ee-b5df6e0a2a36)
@@ -72,10 +72,10 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![what youre up against](https://github.com/user-attachments/assets/8576a231-846e-427d-9435-5306c1fa0baf)
 ![femtanyl](https://github.com/user-attachments/assets/c9da749f-d5cc-4514-9555-db797868eff7)
 ![ctrl f4](https://github.com/user-attachments/assets/ab033a76-d05e-4206-9557-1c91181329fb)
-<img width="101" height="58" alt="im a pet" src="https://github.com/user-attachments/assets/9b3d8383-f6a7-46d3-b8c2-a91c38592c81" />
-<img width="99" height="56" alt="love my bf" src="https://github.com/user-attachments/assets/5401da30-4d0e-4d23-8529-18442ab60318" />
-<img width="99" height="57" alt="homosexual activities" src="https://github.com/user-attachments/assets/c84579b6-883d-4efd-9c92-702306924ce9" />
-<img width="99" height="56" alt="ishmael" src="https://github.com/user-attachments/assets/2ccd85a1-f508-4145-8625-e4dbdb08f5f0" />
+![im a pet](https://github.com/user-attachments/assets/9b3d8383-f6a7-46d3-b8c2-a91c38592c81)
+![love my bf](https://github.com/user-attachments/assets/5401da30-4d0e-4d23-8529-18442ab60318)
+![homosexual activities](https://github.com/user-attachments/assets/c84579b6-883d-4efd-9c92-702306924ce9)
+![ishmael](https://github.com/user-attachments/assets/2ccd85a1-f508-4145-8625-e4dbdb08f5f0)
 
 
 
