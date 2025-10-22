@@ -139,13 +139,13 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![guided by confused light](https://github.com/user-attachments/assets/8899a3f4-c650-48d6-8b20-f533a66da178)
 ![time is an illusion and i have amnesia](https://github.com/user-attachments/assets/3607bb72-16f6-4ff4-a64d-4ddc18ec12c6)
 ![on my puter](https://github.com/user-attachments/assets/5c778cbc-fd69-4922-a724-267a188f88e6)
-![tumblr_278febcbac292799c5b5a2a171548acf_e304a897_250](https://github.com/user-attachments/assets/2f32c5c0-02d7-42a8-80dd-3adae1cfacbe)
-![tumblr_90231268fa60e5d0f48c2beb2ca40087_8a9d3038_250](https://github.com/user-attachments/assets/371ebc82-5365-47ab-b01b-3c3f4d6906ed)
-![tumblr_52732881581a1bc98195e6b280bf00ab_8e938c14_250](https://github.com/user-attachments/assets/83964828-7fa7-47b9-a5b8-29e74333f94a)
-![tumblr_c98ffaea146f9f8c3db7b3dea255a9dd_6bcbec88_250](https://github.com/user-attachments/assets/e9c2e24a-d4bd-471d-b013-761f73321641)
-![tumblr_716ab86e162db4d581bb136e19d61430_0814563f_250](https://github.com/user-attachments/assets/51eb546a-62d8-4069-8fdb-c8bfea090739)
-![ezgif-229da1cd734c9b](https://github.com/user-attachments/assets/708c1406-fded-42bc-b1b4-29bfccf560c1)
-![tumblr_75077a1a133b2e72342ef66bd3f9e982_8b1b772d_250](https://github.com/user-attachments/assets/e83631f8-106d-434f-a394-17ac7d740a6c)
+![melanie hater](https://github.com/user-attachments/assets/2f32c5c0-02d7-42a8-80dd-3adae1cfacbe)
+![no big surprise you turned out this way](https://github.com/user-attachments/assets/371ebc82-5365-47ab-b01b-3c3f4d6906ed)
+![double boom](https://github.com/user-attachments/assets/83964828-7fa7-47b9-a5b8-29e74333f94a)
+![moby dick](https://github.com/user-attachments/assets/e9c2e24a-d4bd-471d-b013-761f73321641)
+![eat grapes and jack off all else banned](https://github.com/user-attachments/assets/51eb546a-62d8-4069-8fdb-c8bfea090739)
+![i heart football](https://github.com/user-attachments/assets/708c1406-fded-42bc-b1b4-29bfccf560c1)
+![i know ibuprofen got me](https://github.com/user-attachments/assets/e83631f8-106d-434f-a394-17ac7d740a6c)
 
 
 
