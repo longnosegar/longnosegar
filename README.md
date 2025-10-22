@@ -152,10 +152,11 @@ I block freely, so even if you aren't one of these, i may still block you!!
 
 
 
-# ty for reading! have a great day X) ![computer](https://github.com/user-attachments/assets/3a264a6f-fd12-4e23-ba67-f5e22809b0fb)
+# ty for reading! have a great day X) ![computer](https://github.com/user-attachments/assets/46fa7052-1262-4713-8208-e5692233ba09)
 
 
-<img width="500" height="450" alt="amen bro" src="https://github.com/user-attachments/assets/9561db53-d770-4213-a540-7589e6ffe40a" />
+
+![dante apology](https://github.com/user-attachments/assets/9561db53-d770-4213-a540-7589e6ffe40a)
 
 <!--
 **entykk/entykk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
