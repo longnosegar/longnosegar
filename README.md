@@ -68,7 +68,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![god is having gay sex](https://github.com/user-attachments/assets/a8301637-38cd-4166-9600-e3acee785632)
 ![disembowel](https://github.com/user-attachments/assets/4b775872-92b5-4b9b-b51f-950333942a69)
 ![stamp on fire](https://github.com/user-attachments/assets/98df67dd-c09a-407a-a6ee-b5df6e0a2a36)
-<img width="99" height="56" alt="hong lu" src="https://github.com/user-attachments/assets/342ba1be-a6bc-4175-bd58-11b6b83dd13f" />
+![hong lu](https://github.com/user-attachments/assets/342ba1be-a6bc-4175-bd58-11b6b83dd13f)
 ![what youre up against](https://github.com/user-attachments/assets/8576a231-846e-427d-9435-5306c1fa0baf)
 ![femtanyl](https://github.com/user-attachments/assets/c9da749f-d5cc-4514-9555-db797868eff7)
 ![ctrl f4](https://github.com/user-attachments/assets/ab033a76-d05e-4206-9557-1c91181329fb)
