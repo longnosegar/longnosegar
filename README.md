@@ -136,7 +136,6 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![everything is a lot](https://github.com/user-attachments/assets/11a5b983-7590-411e-b8b1-a254734856dd)
 ![support your local theatre](https://github.com/user-attachments/assets/035517f1-136d-443b-88bc-258e073caa48)
 ![welcome to night vale](https://github.com/user-attachments/assets/70f2a0e9-37ce-4a85-b21e-e0b1e5bceede)
-![guided by confused light](https://github.com/user-attachments/assets/8899a3f4-c650-48d6-8b20-f533a66da178)
 ![time is an illusion and i have amnesia](https://github.com/user-attachments/assets/3607bb72-16f6-4ff4-a64d-4ddc18ec12c6)
 ![on my puter](https://github.com/user-attachments/assets/5c778cbc-fd69-4922-a724-267a188f88e6)
 ![melanie hater](https://github.com/user-attachments/assets/2f32c5c0-02d7-42a8-80dd-3adae1cfacbe)
