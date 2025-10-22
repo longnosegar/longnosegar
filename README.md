@@ -152,7 +152,8 @@ I block freely, so even if you aren't one of these, i may still block you!!
 
 
 
-# ty for reading! have a great day X) ![computer](https://github.com/user-attachments/assets/46fa7052-1262-4713-8208-e5692233ba09)
+# ty for reading! have a great day X) ![computer](https://github.com/user-attachments/assets/09228193-c4eb-43e7-ba45-25d06b7b6221)
+
 
 
 
