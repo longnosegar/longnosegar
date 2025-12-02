@@ -59,8 +59,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 ![save a horse](https://github.com/user-attachments/assets/1a3b56e9-1e36-4aa4-947b-37decc73f166)
 
 
-
-![harmony dance](https://github.com/user-attachments/assets/3a2ace86-f7aa-4a78-8f02-7c72976303ec)
+![harmony dance](https://github.com/user-attachments/assets/1a8b5327-876f-4d8f-a6ec-004dd5c49e3c)
 ![diet is barbed wire](https://github.com/user-attachments/assets/04b9856b-4596-43bd-924d-07b27f30235e)
 ![meet you irl](https://github.com/user-attachments/assets/fa6f0e97-0722-42cb-8572-e5ff8ff6b713)
 ![fnaf](https://github.com/user-attachments/assets/f2df891a-4e84-4150-9a14-dcf78281e22b)
