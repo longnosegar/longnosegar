@@ -154,8 +154,7 @@ I block freely, so even if you aren't one of these, i may still block you!!
 
 
 
-
-![dante apology](https://github.com/user-attachments/assets/9561db53-d770-4213-a540-7589e6ffe40a)
+<img width="634" height="460" alt="490322330-9561db53-d770-4213-a540-7589e6ffe40a (1)" src="https://github.com/user-attachments/assets/61220a3c-a5fc-45c6-af31-e38964ddd7d9" />
 
 <!--
 **entykk/entykk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
