@@ -2,7 +2,7 @@
 
 ## Hii, i'm Charlie!! ![avian](https://github.com/user-attachments/assets/dd70e299-6dd1-43c4-b6cc-3e107e7943ff)
 
-![views](https://komarev.com/ghpvc/?username=longnosegare&style=plastic)
+![views](https://komarev.com/ghpvc/?username=longnosegare&style=plastic&color=green)
 
 ### he/it/woof
 #### though i know some html and css, i prefer using github because it makes my brain hurt less and i dont have to pay for it
