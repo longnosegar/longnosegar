@@ -5,6 +5,8 @@
 ### he/it/woof
 ![worlds_worst_coder](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
 
+[about me](https://github.com/longnosegar/aboutme) ; [blinkie hoard](https://github.com/longnosegar/blinkie-hoard) ; [blogging](https://github.com/longnosegar/blogging) ; [links](https://github.com/longnosegar/links) 
+
 transmasculine, demisexual and biromantic.
 in a relationship, and i love my boyfriend!! please dont flirt with me :D
 
