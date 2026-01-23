@@ -6,7 +6,7 @@
 #### though i know a lot of basic html and css, i prefer hosting my stuff using github because it makes my brain hurt less and i dont have to pay for it
 ![worlds_worst_coder](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
 
-[about me](https://github.com/longnosegar/aboutme) ; [blinkie hoard](https://github.com/longnosegar/blinkie-hoard) ; [blogging](https://github.com/longnosegar/blogging) ; [links](https://github.com/longnosegar/links) 
+[about me](https://github.com/longnosegar/aboutme) ; [blogging](https://github.com/longnosegar/blogging) ; [links](https://github.com/longnosegar/links) ; [blinkie hoard](https://github.com/longnosegar/blinkie-hoard) 
 
 
 
