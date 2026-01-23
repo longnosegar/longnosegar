@@ -5,7 +5,7 @@
 ![views](https://komarev.com/ghpvc/?username=longnosegare&style=plastic&color=green)
 
 ### he/it/woof
-#### though i know some html and css, i prefer using github because it makes my brain hurt less and i dont have to pay for it
+#### though i know some html and css, i prefer using github because it makes my brain hurt less and i dont have to pay to host my own website
 
 ![worlds_worst_coder](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
 
