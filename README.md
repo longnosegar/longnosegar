@@ -9,7 +9,7 @@
 
 <div align="center">
 
-<a href="https://github.com/longnosegar/aboutme/"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=A4B89A&repeat=false&width=40&lines=links"/></a>
+<a href="https://github.com/longnosegar/aboutme/"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=A4B89A&repeat=false&width=40&lines=aboutme"/></a>
 
 <div align="center">
 
