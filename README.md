@@ -1,3 +1,5 @@
+# this is a wip its ugly and barely works right now
+
 
 <img width="2048" height="164" alt="divider" src="https://github.com/user-attachments/assets/03028b2c-4178-4e1e-a6d1-177e007ffa4f" />
 
@@ -9,11 +11,12 @@
 
 <div align="center">
 
-<a href="https://github.com/longnosegar/aboutme/"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=A4B89A&repeat=false&width=40&lines=aboutme"/></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=BED4B4&repeat=false&width=94&lines=about+me" alt="Typing SVG" /></a>
 
 <div align="center">
 
-<a href="https://github.com/longnosegar/blinkie-hoard"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=A4B89A&repeat=false&width=105&lines=blinkie+hoard" alt="Typing SVG"/></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=BED4B4&repeat=false&width=105&lines=blinkie+hoard" alt="Typing SVG" /></a>
+
 
 <img width="2048" height="164" alt="tumblr_4898377c724113bc60aaa6f4262a6ab3_56ac1719_2048" src="https://github.com/user-attachments/assets/2e5c48e0-064f-4b44-8cd7-a881d63072dd" />
 
