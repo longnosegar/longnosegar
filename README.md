@@ -4,20 +4,16 @@
 <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&size=35&duration=4000&pause=1000&color=A4B89A&repeat=false&width=175&lines=hi%2C+im+charlie" alt="Typing SVG" /></a>
 
 
-
 ![worlds_worst_coder](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
 <div align="center"> 
-  
-[ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=A4B89A&repeat=false&width=80&lines=about+me" alt="Typing SVG" /></a>](https://github.com/longnosegar/aboutme)
 
 <div align="center">
 
-[<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=A4B89A&repeat=false&width=40&lines=links" alt="Typing SVG" /></a>
-](https://github.com/longnosegar/links)
+<a href="https://github.com/longnosegar/aboutme/"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=A4B89A&repeat=false&width=40&lines=links"/></a>
 
 <div align="center">
 
-[<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=A4B89A&repeat=false&width=105&lines=blinkie+hoard" alt="Typing SVG" /></a>](https://github.com/longnosegar/blinkie-hoard) 
+<a href="https://github.com/longnosegar/blinkie-hoard"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=A4B89A&repeat=false&width=105&lines=blinkie+hoard" alt="Typing SVG"/></a>
 
 <img width="2048" height="164" alt="tumblr_4898377c724113bc60aaa6f4262a6ab3_56ac1719_2048" src="https://github.com/user-attachments/assets/2e5c48e0-064f-4b44-8cd7-a881d63072dd" />
 
