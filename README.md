@@ -6,9 +6,22 @@
 
 ![worlds_worst_coder](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
 
+
+<div align="left"> 
+  
+<img align="right" height="270px" alt="PNG" src="https://github.com/user-attachments/assets/c26c587c-71fd-416f-ad6b-3eb99f10ac80" />
+
+</div>
+
+
+
+
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=71d974&background=09288F00&repeat=false&width=108&height=64&lines=about+me" alt="Typing SVG" /></a>
 
 <a href="https://github.com/longnosegar/blinkie-hoard"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=71D974&background=09288F00&repeat=false&width=104&height=64&lines=blinkies" alt="Typing SVG" /></a>
+
+<a href="https://github.com/longnosegar/blinkie-hoard"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=71D974&background=09288F00&repeat=false&width=104&height=64&lines=test" alt="Typing SVG" /></a>
+
 
 <div align="center"> <img width="1500" height="30" alt="tumblr_b639d6803c65594891aa7c0de6946c61_a48a90fa_400" src="https://github.com/user-attachments/assets/57eefb21-3165-4952-b76a-b573d3744e62" />
 
