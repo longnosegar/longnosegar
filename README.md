@@ -36,7 +36,7 @@
 
 <div align="center"> 
 <img width="634" height="460" alt="490322330-9561db53-d770-4213-a540-7589e6ffe40a (1)" src="https://github.com/user-attachments/assets/61220a3c-a5fc-45c6-af31-e38964ddd7d9" />
-<div align="right"> <img width="125" height="20" alt="divider" src="https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c" />
+<div align="right"> <img width="200" height="30" alt="divider" src="https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c" />
 <!--
 **longnosegar/longnosegar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
