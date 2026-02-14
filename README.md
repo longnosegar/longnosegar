@@ -5,20 +5,21 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Workbench&size=32&letterSpacing=letter-spacing%3A+10+px;&duration=6000&pause=1000&color=4621FF&background=09288F00&repeat=false&width=260&height=64&lines=hii%2C+im+charlie!" alt="Typing SVG" /></a>
 
 ![worlds_worst_coder](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
-<div align="center"> 
 
-<div align="center">
 
+<div align="left">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=71d974&background=09288F00&repeat=false&width=108&height=64&lines=about+me" alt="Typing SVG" /></a>
 
-<a href="https://github.com/longnosegar/blinkie-hoard"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=71D974&background=09288F00&repeat=false&width=104&height=64&lines=blinkies" alt="Typing SVG" /></a>
+  <img width="644" height="618" alt="tumblr_4ffce167cc9f22e763a3eae276e1ff91_f99b971f_1280" src="https://github.com/user-attachments/assets/0aa69ded-cd54-413d-9351-80f41025da57" />
 
 
+<div align="right"><a href="https://github.com/longnosegar/blinkie-hoard"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=71D974&background=09288F00&repeat=false&width=104&height=64&lines=blinkies" alt="Typing SVG" /></a>
 
-<img width="2048" height="164" alt="tumblr_4898377c724113bc60aaa6f4262a6ab3_56ac1719_2048" src="https://github.com/user-attachments/assets/2e5c48e0-064f-4b44-8cd7-a881d63072dd" />
+<div align="center"> <img width="1500" height="30" alt="tumblr_b639d6803c65594891aa7c0de6946c61_a48a90fa_400" src="https://github.com/user-attachments/assets/57eefb21-3165-4952-b76a-b573d3744e62" />
 
-<div align="center"> <img width="634" height="460" alt="490322330-9561db53-d770-4213-a540-7589e6ffe40a (1)" src="https://github.com/user-attachments/assets/61220a3c-a5fc-45c6-af31-e38964ddd7d9" />
 
+<div align="center"> 
+<img width="634" height="460" alt="490322330-9561db53-d770-4213-a540-7589e6ffe40a (1)" src="https://github.com/user-attachments/assets/61220a3c-a5fc-45c6-af31-e38964ddd7d9" />
 <!--
 **entykk/entykk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
