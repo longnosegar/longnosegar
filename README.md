@@ -1,7 +1,6 @@
 # this is a wip its ugly and barely works right now
 
-
-<img width="2048" height="164" alt="divider" src="https://github.com/user-attachments/assets/03028b2c-4178-4e1e-a6d1-177e007ffa4f" />
+<div align="center"> <img width="1900" height="125" alt="divider" src="https://github.com/user-attachments/assets/4e5c8616-f4a1-4a47-9278-d645a9c7400e" />
 
 <div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&size=35&duration=4000&pause=1000&color=A4B89A&repeat=false&width=175&lines=hi%2C+im+charlie" alt="Typing SVG" /></a>
 
