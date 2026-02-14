@@ -11,12 +11,10 @@
 <div align="left"> 
   
 <img align="right" height="270px" alt="PNG" src="https://github.com/user-attachments/assets/4228cce8-f2c2-4c9c-9a60-c75c3cd6c53e" />
-<img align="left" img height="300px" alt="this" src="https://github.com/user-attachments/assets/b7c294ce-f9c8-4527-9cfe-acb89aeec86a" />
+<img align="left" width="362" height="300" alt="this-removebg-preview-removebg-preview" src="https://github.com/user-attachments/assets/d9fcc812-b9bb-4b36-a557-6ecb0ffda694" />
 <br>
 <br>
 </div>
-
-
 
 <div align="center"> 
 
