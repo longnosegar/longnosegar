@@ -3,8 +3,9 @@
 <div align="center"> <img width="1900" height="125" alt="divider" src="https://github.com/user-attachments/assets/4e5c8616-f4a1-4a47-9278-d645a9c7400e" />
 <br>
 <br>
+  
+<div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Workbench&size=32&letterSpacing=letter-spacing%3A+10+px;&duration=6000&pause=1000&color=4621FF&background=09288F00&repeat=false&width=260&height=64&lines=hii%2C+im+charlie!" alt="Typing SVG" /></a>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Workbench&size=32&letterSpacing=letter-spacing%3A+10+px;&duration=6000&pause=1000&color=4621FF&background=09288F00&repeat=false&width=260&height=64&lines=hii%2C+im+charlie!" alt="Typing SVG" /></a>
 
 <div align="left"> 
   
