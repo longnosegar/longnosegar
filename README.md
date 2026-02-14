@@ -2,17 +2,16 @@
 
 <div align="center"> <img width="1900" height="125" alt="divider" src="https://github.com/user-attachments/assets/4e5c8616-f4a1-4a47-9278-d645a9c7400e" />
 
-<div align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&size=35&duration=4000&pause=1000&color=A4B89A&repeat=false&width=175&lines=hi%2C+im+charlie" alt="Typing SVG" /></a>
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Workbench&size=32&letterSpacing=letter-spacing%3A+10+px;&duration=6000&pause=1000&color=4621FF&background=09288F00&repeat=false&width=260&height=64&lines=hii%2C+im+charlie!" alt="Typing SVG" /></a>
 
 ![worlds_worst_coder](https://github.com/user-attachments/assets/d1d7b9a5-b094-4e21-95e7-36138163e88c)
 <div align="center"> 
 
 <div align="center">
 
-<a href="https://github.com/longnosegar/aboutme/"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=BED4B4&repeat=false&width=94&height=25&lines=about+me" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=71d974&background=09288F00&repeat=false&width=108&height=64&lines=about+me" alt="Typing SVG" /></a>
 
-<a href="https://github.com/longnosegar/blinkie-hoard"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&duration=1&pause=1000&color=BED4B4&repeat=false&width=105&height=25&lines=blinkie+hoard" alt="Typing SVG"/>
+<a href="https://github.com/longnosegar/blinkie-hoard"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=71D974&background=09288F00&repeat=false&width=104&height=64&lines=blinkies" alt="Typing SVG" /></a>
 
 
 
