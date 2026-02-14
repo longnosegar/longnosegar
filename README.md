@@ -10,9 +10,6 @@
 <div align="left">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=71d974&background=09288F00&repeat=false&width=108&height=64&lines=about+me" alt="Typing SVG" /></a>
 
-  <img width="644" height="618" alt="tumblr_4ffce167cc9f22e763a3eae276e1ff91_f99b971f_1280" src="https://github.com/user-attachments/assets/0aa69ded-cd54-413d-9351-80f41025da57" />
-
-
 <div align="right"><a href="https://github.com/longnosegar/blinkie-hoard"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=71D974&background=09288F00&repeat=false&width=104&height=64&lines=blinkies" alt="Typing SVG" /></a>
 
 <div align="center"> <img width="1500" height="30" alt="tumblr_b639d6803c65594891aa7c0de6946c61_a48a90fa_400" src="https://github.com/user-attachments/assets/57eefb21-3165-4952-b76a-b573d3744e62" />
