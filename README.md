@@ -1,6 +1,8 @@
 # this is a wip its ugly and barely works right now
 
 <div align="center"> <img width="1900" height="125" alt="divider" src="https://github.com/user-attachments/assets/4e5c8616-f4a1-4a47-9278-d645a9c7400e" />
+<br>
+<br>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Workbench&size=32&letterSpacing=letter-spacing%3A+10+px;&duration=6000&pause=1000&color=4621FF&background=09288F00&repeat=false&width=260&height=64&lines=hii%2C+im+charlie!" alt="Typing SVG" /></a>
 
@@ -9,7 +11,7 @@
 <div align="left"> 
   
 <img align="right" height="270px" alt="PNG" src="https://github.com/user-attachments/assets/4228cce8-f2c2-4c9c-9a60-c75c3cd6c53e" />
-<img align="left" img height="270px" alt="this" src="https://github.com/user-attachments/assets/b7c294ce-f9c8-4527-9cfe-acb89aeec86a" />
+<img align="left" img height="300px" alt="this" src="https://github.com/user-attachments/assets/b7c294ce-f9c8-4527-9cfe-acb89aeec86a" />
 <br>
 <br>
 </div>
