@@ -31,7 +31,9 @@
 
 </div>
 
-<div align="center"> <img width="1500" height="30" alt="tumblr_b639d6803c65594891aa7c0de6946c61_a48a90fa_400" src="https://github.com/user-attachments/assets/57eefb21-3165-4952-b76a-b573d3744e62" />
+<img width="800" height="30" alt="tumblr_b639d6803c65594891aa7c0de6946c61_a48a90fa_400" src="https://github.com/user-attachments/assets/c225fb13-442d-4c80-a593-04a41b2d366c" />
+
+
 
 
 <div align="center"> 
