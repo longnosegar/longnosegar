@@ -17,7 +17,7 @@
 
 <div align="center"> 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=00FF00&background=09288F00&repeat=false&width=108&height=64&lines=about+me" alt="Typing SVG" /></a>
+<a href="https://github.com/longnosegar/aboutme"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=00FF00&background=09288F00&repeat=false&width=108&height=64&lines=about+me" alt="Typing SVG" /></a>
 
 <div align="center"> 
 
@@ -25,7 +25,7 @@
 
 <div align="center"> 
 
-<a href="https://github.com/longnosegar/blinkie-hoard"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=00FF00&background=09288F00&repeat=false&width=104&height=64&lines=idk" alt="Typing SVG" /></a>
+<a href="https://github.com/longnosegar/links"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=00FF00&background=09288F00&repeat=false&width=104&height=64&lines=links" alt="Typing SVG" /></a>
 
 
 
