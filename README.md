@@ -1,5 +1,3 @@
-# this is a wip its ugly and barely works right now
-
 <div align="center"> <img width="1900" height="125" alt="divider" src="https://github.com/user-attachments/assets/4e5c8616-f4a1-4a47-9278-d645a9c7400e" />
 <br>
 <br>
