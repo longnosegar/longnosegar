@@ -23,7 +23,7 @@
 
 <div align="center"> 
 
-<a href="https://github.com/longnosegar/links"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=00FF00&background=09288F00&repeat=false&width=104&height=64&lines=links" alt="Typing SVG" /></a>
+<a href="https://longnosegar.atabook.org"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=32&duration=1&pause=1000&color=00FF00&background=09288F00&repeat=false&width=104&height=64&lines=atabook" alt="Typing SVG" /></a>
 
 
 
