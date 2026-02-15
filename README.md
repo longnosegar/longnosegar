@@ -10,7 +10,7 @@
 <div align="left"> 
   
 <img align="right" height="270px" alt="PNG" src="https://github.com/user-attachments/assets/4228cce8-f2c2-4c9c-9a60-c75c3cd6c53e" />
-<img align="left" width="300" height="300" alt="this-removebg-preview-removebg-preview" src="https://github.com/user-attachments/assets/27aaaae5-8211-48d4-8906-31894833a883" />
+<img align="left" width="300" height="300" alt="this-removebg-preview-removebg-preview" src="https://github.com/user-attachments/assets/ad701bb4-a8f7-4977-a019-bffd053a1f13" />
 <br>
 <br>
 </div>
