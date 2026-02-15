@@ -1,5 +1,4 @@
-# this is a wip the links other than atabook dont work/arent decorated lol
-
+# this is a wip the links other than atabook dont work/arent decorated 
 <div align="center"> <img width="1700" height="100" alt="divider" src="https://github.com/user-attachments/assets/4e5c8616-f4a1-4a47-9278-d645a9c7400e" />
 <br>
 <br>
